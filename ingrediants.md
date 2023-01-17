@@ -1,5 +1,5 @@
 Les ingredients
-- 45g de sucre
+- 55g de sucre
 - vanille
 - farine
 - chocolat

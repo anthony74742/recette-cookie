@@ -1,1 +1,9 @@
 Les ingredients
+- sucre
+- vanille
+- farine
+- chocolat
+- sell
+- levure
+- beure
+- oeuf

@@ -1,9 +1,1 @@
-Les ingredients
-- 65g de sucre
-- vanille
-- farine
-- chocolat
-- sell
-- levure
-- beure
-- oeuf
+Mettre de la vanille en plus
